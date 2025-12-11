@@ -55,7 +55,7 @@ Fully Equipped Kitchen: Modern two-Bedroom Suites come with kitchen tools, appli
 
 Modern Bathroom Setup: Expect clean, well-designed bathrooms with standard amenities for a fresh daily routine.
 
-Smart Design & Layout: From ergonomic furniture to efficient room planning, everything is built to maximize comfort and free movement.
+Smart Design & Layout: https://www.ecommerce.com.bd/ From ergonomic furniture to efficient room planning, everything is built to maximize comfort and free movement.
 
 Family-Friendly Environment: The layout is perfect for kids, couples, or professionals who prefer privacy within the same home.
 
