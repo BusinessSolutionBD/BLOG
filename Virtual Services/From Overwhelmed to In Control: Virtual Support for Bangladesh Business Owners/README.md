@@ -1,4 +1,4 @@
-                                  <h1>From Overwhelmed to In Control: Virtual Support for Bangladesh Business Owners</h1>
+                                  From Overwhelmed to In Control: Virtual Support for Bangladesh Business Owners
 
 Let’s be honest. You didn’t start your business to spend your days chasing emails, stuck in traffic, or hunting for a document you just had open.You started it to build something. To create, to lead, to make an impact.
 But lately, your big ideas are getting buried under a mountain of small tasks. That exciting new project? It’s waiting while you format an invoice. That important client call? You’re scrambling to find the notes from your last meeting.It’s not that you can’t do the work—you absolutely can. It’s that doing this work means you’re not doing your work.
