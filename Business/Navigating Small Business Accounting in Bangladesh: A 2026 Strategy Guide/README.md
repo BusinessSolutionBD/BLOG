@@ -1,4 +1,4 @@
-                                                          Navigating Small Business Accounting in Bangladesh: A 2026 Strategy Guide
+                          **Navigating Small Business Accounting in Bangladesh: A 2026 Strategy Guide**
 **Executive Summary**
 
 **Financial Efficiency:** Transitioning to outsourced services can cut your internal costs by nearly 40%, letting you channel that capital back into your core operations.
