@@ -11,7 +11,7 @@ On-Demand Support: From professional call handling to mail forwarding, you’re 
 What Exactly Is a Virtual Office?
 Think of it as your business’s digital headquarters with a physical footprint. In Bangladesh, a virtual office gives you a legitimate commercial address to register your company and receive official mail, but you and your team stay remote. It’s the ultimate hack for modern SMEs and startups in Bangladesh who want to look big while staying lean.
 Perks That Help You Grow
-When you sign up for a [virtual office](host.com.bd/serviced-office/virtual-office-for-company-registration/) , you aren't just getting a mailbox. You’re getting a full-service support team:
+When you sign up for a [virtual office](host.com.bd/serviced-office/virtual-office-for-company-registration) , you aren't just getting a mailbox. You’re getting a full-service support team:
 The "Gatekeeper": A professional receptionist who answers your calls, so you don't have to.
 Snail Mail, Digitized: Your packages are received, scanned, and emailed to you instantly.
 The "Power Room": Access to high-end conference rooms for when you need to close a deal in person.
